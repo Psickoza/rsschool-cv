@@ -33,3 +33,16 @@ I have worked with languages and literature so far. You can get more information
 - Minsk state linguistic university. Specialist Programme in foreign language training (English, Swedish, German), 2013.
 - Moscow state linguistic university. Advanced training programme in interpreting art and consecutive interpreting, 2017. 
 - University of Gothenburg. Master's programme in Educational Research, 2021. 
+
+### COURSES
+
+- Web Development (basics; part 1, part 2), Sweden, 2020-2021. 
+
+### LANGUAGES
+
+- Russian, Belarusian - native 
+- English - fluent (IELTS, 2020)
+- Swedish - fluent (SVA 03 A, Swedish as a foreign language, Sweden, 2020)
+- German - B 1
+- French - A 2 
+- Korean - A 2 
