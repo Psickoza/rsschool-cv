@@ -2,8 +2,8 @@
 
 ### CONTACTS
 
-**E-mail**: psickozzza@gmail.com
-**Phone**: +7(985) 1850978
+1. **E-mail**: psickozzza@gmail.com
+2. **Phone**: +7(985) 1850978
 
 ### ABOUT ME
 
